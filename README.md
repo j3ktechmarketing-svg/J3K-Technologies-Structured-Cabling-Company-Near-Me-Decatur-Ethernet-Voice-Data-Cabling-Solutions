@@ -139,7 +139,7 @@ We help businesses build strong, efficient, and scalable technology foundations 
 
 ## Final Thoughts
 
-Structured cabling is more than just wiring—it’s the foundation of your business connectivity. With J3K Technologies in Decatur, you get a system that is organized, efficient, and built to perform.
+Structured cabling is more than just wiring it’s the foundation of your business connectivity. With J3K Technologies in Decatur, you get a system that is organized, efficient, and built to perform.
 
 ---
 
